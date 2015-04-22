@@ -1,4 +1,4 @@
-# nicks ponderings
+# serapaths ponderings
 
 This is the home for my ponderings of life. A public collection in my in-progress thoughts on everything. It started just about money but is hopefully expanding to cover all of my thoughts, and some new thoughts I haven't had yet.
 
